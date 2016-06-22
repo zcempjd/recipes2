@@ -1,3 +1,3 @@
 # Ingredients
 
-Chick peas
+lettice
