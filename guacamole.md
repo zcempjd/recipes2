@@ -1,6 +1,6 @@
 # Ingredients
 -Advocado
--Lemons
+-Lime
 -Onions
 -Salt 
 
