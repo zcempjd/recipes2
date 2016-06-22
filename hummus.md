@@ -1,3 +1,3 @@
 # Ingredients
 
-Chicken peas
+Chicken pea
